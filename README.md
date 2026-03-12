@@ -90,7 +90,6 @@ Currently expanding technical and analytical skills in:
 Technological University of the Shannon, Ireland
 
 **MA Economics (Statistics)**
-Dr. Ram Manohar Lohia Avadh University
 
 **Bachelor of Commerce**
 
