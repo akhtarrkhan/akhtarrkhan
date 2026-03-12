@@ -1,4 +1,4 @@
-# Hi, I'm Akhtar R. Khan 👋
+# Hi, I'm Akhtar Rasool Khan 👋
 
 MSc Data Analytics Student | Risk & Compliance Background | Data Analysis & Analytics
 
