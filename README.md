@@ -1,4 +1,4 @@
-# Hi, I'm Akhtar Khan 👋
+# Hi, I'm Akhtar Rasool Khan 👋
 
 MSc Data Analytics | Risk, Data & Technical Analytics
 
