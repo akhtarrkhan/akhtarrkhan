@@ -1,4 +1,4 @@
-# Hi, I'm Akhtar Rasool Khan 👋
+# Hi, I'm Akhtar Rasool Khan 👋 <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="30px"/>
 
 MSc Data Analytics | Risk, Data & Technical Analytics
 
